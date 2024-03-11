@@ -10,7 +10,7 @@ BackEnd developer
 
 
 ## 🛠 Skills
-Javascript, HTML, CSS...
+PHP, HTML, CSS...
 
 
 ## 🔗 Links
