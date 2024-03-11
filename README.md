@@ -4,7 +4,7 @@ BackEnd developer
 
 
 ## Other Common Github Profile Sections
-👩‍💻 🧠 👯‍♀️🤔  😄 ⚡️
+🚫🐊 🧠 🤔  😄 ⚡️
 
 📫 Gmail:Mahdyaralipor0@gmail.Com 
 
