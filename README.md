@@ -1,6 +1,5 @@
 
-## 👶🏿 About Me
-BackEnd developer
+## BackEnd developer
 
 🚫🐊 🧠 🤔  😄 ⚡️
 
